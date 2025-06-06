@@ -17,7 +17,7 @@ The report is based entirely on **public, verifiable information**. It draws no 
 ## Contents
 
 - **Emergent Consciousness in Non-Human Lifeforms — A Strategic Pattern Analysis.pdf**  
-  _Primary document. 17 pages. Includes main thesis and operational surveillance addendum._
+  _Primary document. 6 pages. Includes main thesis and operational surveillance addendum._
 
 ---
 
